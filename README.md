@@ -9,7 +9,7 @@ reason for expose? = because the weirdo wont step away from the ogfn scene...
 
 **Lets begin from zero.**
 
-It all started with me optimizing colton's pc (these where the just windows tweaks, before he installed XOS)
+It all started with me optimizing colton's pc thru anydesk (these where the just windows tweaks, before he installed XOS)
 
 i needed to use his notepad to talk with him because my mic was broken at that time. I open his notepad and his last open window in there
 was a website with... questionable.. toys? he immediatly closed it and i made a excuse i didnt see it.

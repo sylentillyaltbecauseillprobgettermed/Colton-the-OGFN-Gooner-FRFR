@@ -67,6 +67,7 @@ https://pastebin.com/7rsRyPzk --> fun little suprise
 
 dm @.sylentis on discord for the full proof. this is only a small fraction of it.
 
+you know what you did, colton burcham
 thats it!!!
 
 

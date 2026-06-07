@@ -14,9 +14,9 @@ It all started with me optimizing colton's pc thru anydesk (these where the just
 i needed to use his notepad to talk with him because my mic was broken at that time. I open his notepad and his last open window in there
 was a website with... questionable.. toys? he immediatly closed it and i made a excuse i didnt see it.
 
-This was also around the time colton got the CP alligations, wich got so extreme a certain group of people ratted him and logged his autofills, browser history, download history, etc...
+This was also around the time colton got the CP alligations, which got so extreme a certain group of people ratted him and logged his autofills, browser history, download history, etc...
 
-After I got my hands on the .txt file with all his logs in it (wich i did not ask for at all) I decided to investigate it with the person that ratted him.
+After I got my hands on the .txt file with all his logs in it (which i did not ask for at all) I decided to investigate it with the person that ratted him.
 
 Now.. the interesting stuff!
 
@@ -25,21 +25,21 @@ this is a small snippet of his info
 https://pastebin.com/rXKawJWp -> **look into here**
 
 
-you can see he mainly goes by the names "pumpkincakezzz" wich is a of b*tthole model
-he also goes by the name "harrytwinkle" wich is also important later!
+you can see he mainly goes by the names "pumpkincakezzz" which is a of b*tthole model
+he also goes by the name "harrytwinkle" which is also important later!
 I havent logged into the websites in a while, i dont know if he changed the info or not
-I do not know wich website, but on one of them he owned a account that posted over 72400 pics wich totals around GIGABYTES of leaked of content...
+I do not know which website, but on one of them he owned a account that posted over 72400 pics which totals around GIGABYTES of leaked of content...
 
 
 # *HIS ALT DISCORD ACCOUNT TALKING TO YOUNGER PEOPLE*
 
-Although i dont have alot of proof about this, because when we logged into his alt discord account we got logged out 10 minutes in. wich is not enough time to gather alot of proof.
+Although i dont have alot of proof about this, because when we logged into his alt discord account we got logged out 10 minutes in. which is not enough time to gather alot of proof.
 and most proof is lost too because of me losing alot of data because of being rootkitted by a luckyware variant
 
 photo of his discord account ->
 https://i.ibb.co/TxqYpRWF/SPOILER-image.png
 
-you can see in his bio he had a discord server. wich after talking to just ONE person due to the limited time we had. we found out that person was.. 14.
+you can see in his bio he had a discord server. which after talking to just ONE person due to the limited time we had. we found out that person was.. 14.
 the discord server was used to send leaks of the pumpkincakezzz of. but there were also people trading "pics" to eachother.
 **Sadly all proof of this is GONE. as the server is deleted by him after we confronted him and me losing my data as said before**
 
